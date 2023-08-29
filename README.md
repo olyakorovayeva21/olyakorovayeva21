@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @olyakorovayeva21
+g- 👋 Hi, I’m @olyakorovayeva21
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...e jyte hrt
-- 📫 How to reach me ...2314   3333cghkhfkuyfasd hrthr rthrt hkj y54
+- 📫 How to reach me ...2314   3333cghkhfkuyfasd hrthr rthrt hkj y54wergwergw
 ryulf aeuer  rt
 <!---
 olyakorovayeva21/olyakorovayeva21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
