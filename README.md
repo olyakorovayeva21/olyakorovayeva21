@@ -1,7 +1,7 @@
 s g- 👋 Hi, I’m @olyakorovayeva21
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...e jyte hrttrsyt y445
+- 💞️ I’m looking to collaborate on ...e jyte hrttrsyt y445 erut
 - 📫 How to reach me ...2314   3333cghkhfkuyfasd hrthr rthrt hkj y54wergwergw 6456tryrt
 ryulf aeuer  rt
 <!---
