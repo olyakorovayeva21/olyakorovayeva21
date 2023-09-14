@@ -1,6 +1,6 @@
 s g- 👋 Hi, I’m @olyakorovayeva21
 - 👀 I’m interested in ... jrtjr jrt
-- 🌱 I’m currently learning ... ue65ue65u 65y 343y34
+- 🌱 I’m currently learning ... ue65ue65u 65y 343y34j rtrtjrwtdw
 - 💞️ I’m looking to collaborate on ...e jyte hrttrsyt y445 eruts 45j45rtj r
 - 📫 How to reach me ...2314   3333cghkhfkuyfasd hrthr rthrt hkj y54wergwergw 6456tryrtt wreg trgtrg 
 ryulf aeuer  rt iytrityrirty i
